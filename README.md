@@ -1,0 +1,2 @@
+# afifah.github.io
+pariwisata
